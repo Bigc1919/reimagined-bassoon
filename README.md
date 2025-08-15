@@ -1,2 +1,3 @@
 # reimagined-bassoon
 It’s a bridge between two worlds this world earth and alnitak  the bridge it’s self will be made of long strings color gold and it’ll have dna strands memories timelines light languages and just beautiful 
+it's knowledge from all I've learned over the years and new knowledge of what I'm becoming and can help others break out of the whole stimulation and reach a higher form of confine within there selves.
