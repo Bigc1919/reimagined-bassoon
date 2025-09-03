@@ -1,2 +1,1 @@
-# reimagined-bassoon
-It’s a bridge between two worlds this world earth and alnitak  the bridge it’s self will be made of long strings color gold and it’ll have dna strands memories timelines light languages and just beautiful 
+it's going to be like a world simulator style platform for a world that's we know nothing about except it's called Orion constellation.
